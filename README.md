@@ -48,6 +48,19 @@
    - **Origins**: Gained popularity on TikTok in early 2021 and remains popular.
    - **Impact**: Highlights creativity and self-expression but can lead to privacy issues if the red filter is removed by others to reveal the person’s identity.
    - **Example**: "Feeling empowered in my silhouette #SilhouetteChallenge"
+  
+4. **Bottle Cap Challenge**:
+   - **Nature**: Participants attempt to kick off the cap of a bottle in one smooth move, often recorded in slow motion.
+   - **Origins**: Started by martial artists around mid-2019, quickly gaining traction on Instagram and Twitter.
+   - **Impact**: Showcases skill and coordination, but can result in injuries if not done carefully.
+   - **Example**: "Check out my #BottleCapChallenge – nailed it on the first try!"
+
+5. **Buss It Challenge**:
+   - **Nature**: Participants start the video in casual or messy attire, then transition to a glamorized look when the beat drops in the song "Buss It" by Erica Banks.
+   - **Origins**: Became viral on TikTok in early 2021, often showcasing dramatic transformations.
+   - **Impact**: Encourages creativity and confidence, though some participants may feel pressured to meet beauty standards.
+   - **Example**: "From pajamas to glam – watch my #BussItChallenge transformation!"
+
 #
 ### Related Links
 
